@@ -1,1 +1,1 @@
-![](fire.gif)
+![](choccy%20milk.png)
